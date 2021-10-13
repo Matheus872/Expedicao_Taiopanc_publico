@@ -16,6 +16,11 @@
 
 
 
+## Assista o Teaser:
+
+[![Watch the video](https://i9.ytimg.com/vi_webp/qiu_HLV3N6s/mqdefault.webp?v=61665047&sqp=COCgmYsG&rs=AOn4CLBlO4nEwI4Xj_DG0-zl-LvoZtrMsg)](https://youtu.be/qiu_HLV3N6s)
+# 
+
 É visível nas práticas de ensino o impacto de tecnologias aplicadas e o interesse natural dos estudantes por jogos digitais. Com isso, na prática diária, em especial nos momentos de estudos remotos, precisamos superar a limitação do uso isolado dos textos já usualmente oferecidos para o trabalho com biodiversidade, alimentação saudável e outros aspectos da biologia no ensino médio. 
 
 O jogo se apresenta como uma alternativa pertinente aos textos conteudistas e busca alcançar uma nova experiência de descorbetas, favorecendo reflexões e a criatividade em solucionar problemas. "Expedição TAIOPANC", uma referência ao nome da cidade Taiobeiras e a biodiversidade ali encontrada, descrita como parte da cultura local que pretende proporcionar uma exploração aos hábitos esquecidos e usuais.
